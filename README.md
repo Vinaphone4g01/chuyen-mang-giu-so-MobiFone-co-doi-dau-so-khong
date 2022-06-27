@@ -1,2 +1,4 @@
 # chuyen-mang-giu-so-MobiFone-co-doi-dau-so-khong
 Giải đáp: Chuyển mạng giữ số sang MobiFone có bị đổi đầu số không?
+<p style="text-align: justify;"><a href="https://3gmobifones.com/giai-dap-chuyen-mang-sang-mobi-bi-doi-dau-so-khong"><strong>Chuyển mạng giữ số MobiFone có bị đổi đầu số không?</strong></a> Khi chuyển mạng người dùng có cần đăng ký lại thông tin chính chủ hay không? Đây là những vấn đề đang được người dùng quan tâm nhất hiện nay. Nếu bạn cũng đang có ý định chuyển sang mạng Mobi để sử dụng thì hãy nên tìm hiểu những thông tin này ngay nhé!</p>
+<p style="text-align: justify;">Thực chất việc chuyển đổi sang nhà mạng khác nhưng vẫn giữ nguyên số thì người dùng đừng lo lắng vì không đổi đầu số, không cần đăng ký lại thông tin chính chủ. Trường hợp người dùng chưa biết cách chuyển đổi thì có thể ghé <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> tìm hiểu thêm.</p>
